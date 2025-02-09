@@ -1,3 +1,5 @@
+<img width="719" alt="1" src="https://github.com/user-attachments/assets/fdecb520-32e4-404c-956c-9c22e5165a86" />
+
 # 🚀 StudyTub - Your Ultimate BTECH Study Buddy
 
 Hey there, awesome human! Welcome to StudyTub, where the BTECH study game gets a major upgrade. We're here to make your learning experience as epic as your favorite meme. Whether you're hunting for top-notch notes or want to drop some knowledge, StudyTub's got your back.
